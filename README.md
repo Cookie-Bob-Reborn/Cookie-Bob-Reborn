@@ -8,4 +8,4 @@
 - Party Engine Director
 - Favorite Games: Friday Night Funkin', Cuphead. (There are more, but I forgot.)
 
-"Cuidado bob reborn está chegando em sua casa 💀"
+"Eu sei aonde vc mora 😼"
