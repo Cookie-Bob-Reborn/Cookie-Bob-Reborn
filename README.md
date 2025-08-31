@@ -1,7 +1,7 @@
 
 # Hi My name is Cookie 🍪
 
-![Cookie Sticker 🔥](cookie_sticker.png)
+![Cookie Sticker 🔥](cookie_sticker02.png)
 
 - Brazilian
 - Haxe Programmer
